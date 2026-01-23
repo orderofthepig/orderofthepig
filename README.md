@@ -1,8 +1,10 @@
-## $${\color{red}"The \space world \space needs \space us, \space Reuben." \space 🐖}$$
+## $${\color{red}"The \space world \space needs \space us, \space}{\color{pink} Reuben." \space 🐖}$$
 
 $${\color{red}.-hera ★ XV ★ she , her-.}$$
 
-$${\color{red}c+h \space freely, \space don't \space copy}$$
+$${\color{pink}artist, \space multifandom, \space multishipper}$$
+
+$${\color{red}c+h \space freely, \space don't \space copy, \space int!}$$
 
 .
 
