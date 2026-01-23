@@ -1,6 +1,6 @@
 <h5 align="center"
   
-## $${\color{red}"𝐓𝐡𝐞 \space 𝐰𝐨𝐫𝐥𝐝 \space 𝐧𝐞𝐞𝐝𝐬 \space 𝐮𝐬, \space 𝐑𝐞𝐮𝐛𝐞𝐧."}$$<br>
+![](https://github.com/orderofthepig/orderofthepig/blob/401e8251ba3b868a082addcdb80186794cda9400/Untitled843_20260123024630.png)
 
 <h5 align="center"
   
