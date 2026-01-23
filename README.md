@@ -22,7 +22,14 @@ $${\color{red}c+h \space freely, \space don't \space copy, \space int!}$$<br>
 
 ${\color{pink}(⁠´⁠・⁠(⁠o⁠o⁠)⁠・⁠｀⁠)}$<br>
 
+.
+
+.
+
+.
+
 <h5 align="center"
+
 
 $$wyd \space when \space my \space gang \space pull \space up$$<br>
 
