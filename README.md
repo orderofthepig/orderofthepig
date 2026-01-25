@@ -24,9 +24,10 @@ ${\color{pink}(⁠´⁠・⁠(⁠o⁠o⁠)⁠・⁠｀⁠)}$<br>
 
 .
 
-hellooo im hera,, i usually sit with friends but if you see me lounging around feel free to sit with me! i can be shy to int sometimes :') i am not scary i swear please int HAHA
+<h5 align="center"
+  
+hellooo im hera,, i usually sit with friends but if you see me lounging around feel free to sit with me! i can be shy to int sometimes :') i am not scary i swear please int HAHA<br>
 
-.
 
 <h5 align="center"
 
