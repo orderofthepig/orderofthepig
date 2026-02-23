@@ -25,8 +25,14 @@ ${\color{pink}(⁠´⁠・⁠(⁠o⁠o⁠)⁠・⁠｀⁠)}$<br>
 .
 
 <h5 align="center"
+
+"Next time on Minecraft: Story Mode..."
   
-hellooo im hera,, i usually sit with friends but if you see me lounging around feel free to sit with me! i can be shy to int sometimes :') i am not scary i swear please int HAHA<br>
+Hellooo!!! im hera,, i usually sit with friends but if you see me lounging around feel free to sit with me! i can be shy to int sometimes :') i am not scary i swear please int HAHA<br>
+
+i kin jesse, i often see myself in them (particularly the male one.....), and i do not mind others who do too!!! jesse into the jesseverse
+
+HOWEVER if other jesse kins are uncomfy with that then its OK to block me! other than that id love to talk with others :-)
 
 
 <h5 align="center"
