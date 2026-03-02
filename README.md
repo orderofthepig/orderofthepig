@@ -32,7 +32,9 @@ Hellooo!!! im hera,, i usually sit with friends but if you see me lounging aroun
 
 i kin jesse, i often see myself in them (particularly the male one.....), and i do not mind others who do too!!! jesse into the jesseverse
 
-HOWEVER if other jesse kins are uncomfy with that then its OK to block me! other than that id love to talk with others :-)
+HOWEVER if other jesse kins are uncomfy with that then its OK to block me, just dont be rude about it. other than that id love to talk with others! :-)
+
+check out my strawpage and ata! i check them quite often so you'll probably get a response within a day or two!
 
 
 <h5 align="center"
