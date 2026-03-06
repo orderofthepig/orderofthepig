@@ -34,7 +34,7 @@ i kin jesse, i often see myself in them (particularly the male one.....), and i 
 
 HOWEVER if other jesse kins are uncomfy with that then its OK to block me, just dont be rude about it. other than that id love to talk with others! :-)
 
-check out my strawpage and ata! i check them quite often so you'll probably get a response within a day or two!
+dni can be found in my strawpage. check out my strawpage and ata! i check them quite often so you'll probably get a response within a day or two!
 
 
 <h5 align="center"
