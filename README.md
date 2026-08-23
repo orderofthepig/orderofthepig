@@ -28,16 +28,7 @@ ${\color{pink}(⁠´⁠・⁠(⁠o⁠o⁠)⁠・⁠｀⁠)}$<br>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=30&duration=3000&pause=2000&color=FBDADB&center=true&width=435&lines="Next+time+on+Minecraft%3A+Story+Mode...";"I+never+wanted+to+be+a+hero...;...but+I'm+willing+to+do+the+heroic+thing.";"Dude%2C+why+are+you+being+such+a+tool%3F";"I've+got+your+back%2C+Lukas!";"Eat+this!";"That'll+do%2C+Reuben...+That'll+do.";"Coming+in+hot!";"Flying+pig+jokes+are+totally+played+out.";"Lapis+blue..+Same+color+as+my+underwear.")](https://git.io/typing-svg)
   
-Hellooo!!! You can call me Hera and/or Jesse! i usually sit with friends but if you see me lounging around feel free to sit with me! i can be shy to int sometimes :') i am not scary i swear please int HAHA<br>
-
-i kin jesse, i often see myself in them (particularly the male one.....), and i do not mind others who do too!!! jesse into the jesseverse
-
-HOWEVER if other jesse kins are uncomfy with that then its OK to block me, just dont be rude about it. other than that id love to talk with others! :-)
-
-i am also @mollyonmymatt on git lol
-
-dni can be found in my strawpage. check out my strawpage and ata! i check them quite often so you'll probably get a response within a day or two!
-
+check my straw for everything about me !
 
 <h5 align="center"
 
