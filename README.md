@@ -8,7 +8,7 @@
 
 <h5 align="center"
 
-$${\color{red}.-hera ★ XVI ★ she , her-.}$$<br>
+$${\color{red}.-hera/jesse ★ XVI ★ she , her-.}$$<br>
 
 <h5 align="center"
 
