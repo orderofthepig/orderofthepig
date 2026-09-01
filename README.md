@@ -31,6 +31,13 @@ ${\color{pink}(⁠´⁠・⁠(⁠o⁠o⁠)⁠・⁠｀⁠)}$<br>
 check my straw for everything about me !
 
 <h5 align="center"
+  
+big fan of the last guest (reimagined) and mcsm
+  <h5 align="center"
+    
+hi im very chill and friendly ... please don't be scared to int or c+h ... ok...?
+
+<h5 align="center"
 
 
 $$wyd \space when \space my \space gang \space pull \space up$$<br>
