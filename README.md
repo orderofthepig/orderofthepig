@@ -32,7 +32,7 @@ check my straw for everything about me !
 
 <h5 align="center"
   
-big fan of the last guest (reimagined) and mcsm. recently getting into rick and morty (dni rickorty okay)
+big fan of the last guest (reimagined) and mcsm. recently getting into rick and morty... rickorty/proshippers dont interact. like ever. thanks
   <h5 align="center"
     
 hi im very chill and friendly ... please don't be scared to int or c+h ... ok...?
