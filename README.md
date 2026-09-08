@@ -32,7 +32,7 @@ check my straw for everything about me !
 
 <h5 align="center"
   
-big fan of the last guest (reimagined) and mcsm
+big fan of the last guest (reimagined) and mcsm. recently getting into rick and morty (dni rickorty okay)
   <h5 align="center"
     
 hi im very chill and friendly ... please don't be scared to int or c+h ... ok...?
